@@ -6,11 +6,7 @@
 5. you are ready to go. 
 ```
 
-- yes
-- oh! yess
-    - ohhhhh!!!!!
-- yeaaaahhh
-- oh yeaaaahhhh
+
 
 [Visit my affiliate site](https://pretty-in-plus.com)
 
